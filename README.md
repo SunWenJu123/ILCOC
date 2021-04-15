@@ -1,1 +1,1 @@
-The code will be release soon, thanks. :)
+The code will be released soon, thanks. :)
